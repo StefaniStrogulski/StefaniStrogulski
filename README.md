@@ -1,5 +1,6 @@
 ### *Olá, Eu sou Stefani!!*
-Espero que se encontre bem, caso precise, vai um abraço virtual \o/
+
+Espero que se encontre bem, mas  caso não , vai um abraço virtual \o/
 
 Trabalho atualmente no setor de Finanças... Caindo de paraquedas nesse novo Mundo rsrsrs
 
